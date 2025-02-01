@@ -1,3 +1,5 @@
+                                PRODI TEKNIK INFORMATIKA SEMESTER 3 UNIVERSITAS BALE BANDUNG 
+
                                                   KELOMPOK 03 BEAUTY
 
                                                 RAHAYU FEBRIANTI (301230057)
